@@ -1,16 +1,27 @@
-### Hi there 👋
+Once there came a man
 
-<!--
-**r4v5/r4v5** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Who said,
 
-Here are some ideas to get you started:
+“Range me all men of the world in rows.”
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+And instantly
+
+There was terrific clamour among the people
+
+Against being ranged in rows.
+
+There was a loud quarrel, world-wide.
+
+It endured for ages;
+
+And blood was shed
+
+By those who would not stand in rows,
+
+And by those who pined to stand in rows.
+
+Eventually, the man went to death, weeping.
+
+And those who staid in bloody scuffle
+
+Knew not the great simplicity.
